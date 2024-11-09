@@ -1,1 +1,0 @@
-# gaytri-jindam.github.io
